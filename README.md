@@ -5,9 +5,9 @@
 ---
 
 ## 🔥 **Key Offers**
-✅ **Active Deal:** 🏷️  **20% OFF All Plans + Free Trial** (**Code: MAGIC10**)  
-🆓 **Free Trial:** 🎟️ **14-Day Access** (*No Credit Card Required*)  
-⚡ **Black Friday Alert:** 🛍️ **35% OFF Annual Plans** (*Available Nov 2025*)  
+✅ **Active Deal:** 🏷️  **[20% OFF All Plans + Free Trial](https://teachable.sjv.io/JrnYGR)** (**Code: MAGIC10**)  
+🆓 **Free Trial:** 🎟️ **[14-Day Access](https://teachable.sjv.io/JrnYGR)** (*No Credit Card Required*)  
+⚡ **Black Friday Alert:** 🛍️ **[35% OFF Annual Plans](https://teachable.sjv.io/JrnYGR)** (*Available Nov 2025*)  
 
 ---
 
@@ -32,10 +32,10 @@ Teachable has empowered **150,000+ creators** to generate **$2.5B+** in course s
 
 | 🎉 **Offer**                     | 💵 **Discount**       | 🔑 **Code/Link**                  | ⏳ **Validity**       |
 |---------------------------------|-------------------|-------------------------------|------------------|
-| 🚀 **Launch Accelerator Challenge** | **20% OFF + 0% Fees** | [🔗 Direct Link](#)           | 🎯 **Limited Time**  |
-| 🔥 **Pro Plan Annual Subscription** | **32.5% Savings**    | **🛍️ MAGIC10**               | 📅 **Until Dec 2025** |
+| 🚀 **Launch Accelerator Challenge** | **20% OFF + 0% Fees** | [🔗 Claim Offer](https://teachable.sjv.io/JrnYGR) | 🎯 **Limited Time**  |
+| 🔥 **Pro Plan Annual Subscription** | **32.5% Savings**    | **🛍️ [MAGIC10](https://teachable.sjv.io/JrnYGR)** | 📅 **Until Dec 2025** |
 | 🏢 **Business Plan Special**        | **25% OFF**          | 🎫 **Auto-applied via Portal**    | 🔑 **Login Required** |
-| 🎟️ **Free Trial**                   | **14-Day Access**    | 🆓 **No Code Needed**            | ✅ **Always Available** |
+| 🎟️ **Free Trial**                   | **14-Day Access**    | 🆓 **[No Code Needed](https://teachable.sjv.io/JrnYGR)** | ✅ **Always Available** |
 
 🛍️ **Pro Tip:** Annual plans include **3 free months + stackable coupons** for **maximum savings**.  
 
@@ -51,12 +51,12 @@ Teachable has empowered **150,000+ creators** to generate **$2.5B+** in course s
 | 🚀 **Pro**      | **$159/mo**        | **$99/mo**        | **50 courses, 0% fees**   |
 | 🏢 **Business** | **$249/mo**        | **$186.75/mo**    | **200 courses, team tools** |
 
-💡 **Savings Hack:** Use code **MAGIC10** 🛍️ during checkout for **extra 10% OFF**.  
+💡 **Savings Hack:** Use code **[MAGIC10](https://teachable.sjv.io/JrnYGR)** 🛍️ during checkout for **extra 10% OFF**.  
 
 ---
 
 ## 🛠 **Step-by-Step: How to Apply Coupons**
-✅ **Choose Your Plan:** Compare features at **Teachable Pricing Page**  
+✅ **Choose Your Plan:** Compare features at **[Teachable Pricing Page](https://teachable.sjv.io/JrnYGR)**  
 🔑 **Enter Code:** Apply **MAGIC10** at checkout  
 🛍️ **Verify Discount:** Ensure *"Promo Applied"* appears  
 🚀 **Start Free Trial:** Access platform immediately  
@@ -84,7 +84,7 @@ Teachable has empowered **150,000+ creators** to generate **$2.5B+** in course s
 ### 📆 **Upcoming Sales:**
 🛍️ **Tax Day Sale (April 15):** **15% OFF**  
 ☀️ **Summer Launch (June 1-30):** **Free coaching templates**  
-🖤 **Black Friday (Nov 21-28):** **35% OFF Annual Plans**  
+🖤 **Black Friday (Nov 21-28):** **[35% OFF Annual Plans](https://teachable.sjv.io/JrnYGR)**  
 
 ### 🎖️ **Historical Discounts:**
 ✅ **2024 Black Friday:** **35% OFF**  
@@ -96,7 +96,7 @@ Teachable has empowered **150,000+ creators** to generate **$2.5B+** in course s
 ## ⭐ **Why Users Love Teachable**
 
 ### 💬 **Success Stories:**
-📢 *"Using MAGIC10 code saved me **$380/year**"* - **Sarah J., Photography Coach**  
+📢 *"Using [MAGIC10](https://teachable.sjv.io/JrnYGR) code saved me **$380/year**"* - **Sarah J., Photography Coach**  
 📢 *"Free trial let me validate course demand risk-free"* - **Mark T., Coding Instructor**  
 
 ### 🏢 **Enterprise Adoption:**
@@ -138,9 +138,9 @@ Teachable has empowered **150,000+ creators** to generate **$2.5B+** in course s
 ---
 
 ## ✅ **Final Verdict: Is Teachable Worth It?**
-With **20-35% discounts** and **new AI-powered features**, **Teachable remains the top choice for course creators in 2025**. Use **MAGIC10** 🛍️ for **instant savings** and test-drive premium features with the **risk-free trial**.  
+With **20-35% discounts** and **new AI-powered features**, **Teachable remains the top choice for course creators in 2025**. Use **[MAGIC10](https://teachable.sjv.io/JrnYGR)** 🛍️ for **instant savings** and test-drive premium features with the **risk-free trial**.  
 
 ### 🎓 **Ready to Start?**
-👉 **[Claim 20% OFF + Free Trial](#) 👈**  
+👉 **[Claim 20% OFF + Free Trial](https://teachable.sjv.io/JrnYGR) 👈**  
 
-📢 **Disclosure:** *We earn commission through qualified links - this helps support our research while maintaining **100% editorial independence**.*  
+📢 **Disclosure:** *We earn commission through qualified links - this helps support our research while maintaining **100% editorial independence**.*
